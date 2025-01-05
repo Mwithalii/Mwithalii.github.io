@@ -16,4 +16,5 @@ Looking at it long-term, after growing my skills, I will give back to the commun
 
 ### Contact
 You can always reach me through email at <diananyawira.dn15@gmail.com> or via LinkedIn at <www.linkedin.com/in/mwithaliidiana>. 
-[Mwithalii Diana](www.linkedin.com/in/mwithaliidiana)
+
+[Mwithalii](www.linkedin.com/in/mwithaliidiana)
