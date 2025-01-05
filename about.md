@@ -15,6 +15,4 @@ I'll use this opportunity to grow my skills, learn the industry standards, and h
 Looking at it long-term, after growing my skills, I will give back to the community through mentorship and guiding others. I believe that developers thrive in a community and the support is really essential especially for those beginning or transitioning. Therefore, I will be part of the impact that gives back to the community.
 
 ### Contact
-You can always reach me through email at <diananyawira.dn15@gmail.com> or via LinkedIn at <www.linkedin.com/in/mwithaliidiana>. 
-
-[Mwithalii] (www.linkedin.com/in/mwithaliidiana)
+You can always reach me through email at <diananyawira.dn15@gmail.com> or via LinkedIn at [Mwithalii Diana](https://www.linkedin.com/in/mwithaliidiana/)
